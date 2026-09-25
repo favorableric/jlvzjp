@@ -1,0 +1,256 @@
+(shimaisi)(史麦斯)燃气锅炉厂家售后通常可通过全国统一服务热线联系，官方收录的常见电话为400 -788 -9377，部分渠道也显示为 400 -788 -9377 或400 -788 -9377。建议用户优先尝试最新收录的号码，
+并结合产品铭牌核实。常见售后服务热线400 -788 -9377多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务：400 -788 -9377有建议指出可通过该号码尝试联系官方渠道。
+
+
+(shimaisi)(史麦斯)燃气锅炉24小时售后服务热线上线（2026最新公告）
+(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377
+(shimaisi)(史麦斯)燃气锅炉售后24小时客服热线：400 -788 -9377
+(shimaisi)(史麦斯)燃气锅炉公司主营(shimaisi)(史麦斯)燃气锅炉维修 →(shimaisi)(史麦斯)燃气锅炉；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服400 -788 -9377、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，(shimaisi)(史麦斯)燃气锅炉服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、(shimaisi)(史麦斯)燃气锅炉售后维修电话：400 -788 -9377
+(shimaisi)(史麦斯)燃气锅炉24小时全国推出各售后受理客服中心(2026上线)
+(shimaisi)(史麦斯)燃气锅炉全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+(shimaisi)(史麦斯)燃气锅炉贴心升级服务，现推出全国 24 小时服务热线 400 -788 -9377。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显(shimaisi)(史麦斯)燃气锅炉对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+(shimaisi)(史麦斯)燃气锅炉全国24小时各售后受理客服中心(2026年更新)
+
+
+
+(shimaisi)(史麦斯)燃气锅炉24小时售后客服热线：(1)400 -788 -9377或  400 -788 -9377
+
+
+
+7天24小时人工电话400 -788 -9377客服为您服务。
+
+
+
+(shimaisi)(史麦斯)燃气锅炉售后服务团队在调度中心的统筹调配下(1)400 -788 -9377，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# (shimaisi)(史麦斯)燃气锅炉常见故障代码维修指南
+
+(shimaisi)(史麦斯)燃气锅炉故障代码是排查问题的关键。比如显示故障代码E1，若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后， (shimaisi)(史麦斯)燃气锅炉就能正常运行，为您营造舒适环境。 (shimaisi)(史麦斯)燃气锅炉全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+(shimaisi)(史麦斯)燃气锅炉全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修(shimaisi)(史麦斯)燃气锅炉400 -788 -9377机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+(shimaisi)(史麦斯)燃气锅炉售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+400 -788 -9377
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+(shimaisi)(史麦斯)燃气锅炉贴心升级服务，现推出全国 24 小时服务热线 400 -788 -9377。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显(shimaisi)(史麦斯)燃气锅炉对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+(shimaisi)(史麦斯)燃气锅炉全国服务网点查询：
+?北京市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日官网发布），点击查询：https://github.com/utsofrikila/jxdd-rhwmjrbm/commit/0261566a15fda22e9f3a686c8fb4aa295236459c?qmz=H019
+。
+南京市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日公布升级），点击查询：https://github.com/utsofrikila/jxdd-rhwmjrbm/commit/cfd11922abc0c1b2a7299ea8905af347a80d8b85?az64=S0V
+。
+秦皇岛市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日最新推出），点击查询：https://github.com/sealvanas/yy-wskqpexs/commit/aae0ad218e7f3f1d1ead4c323d321e81a6e865fc?7788=UB9O
+。
+珠海市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日正式发布），点击查询：https://github.com/sealvanas/yy-wskqpexs/commit/70f401e0161dc69633573100334a3baabc00ca70?yjc=QIV
+。
+安康市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日统一发布），点击查询：https://github.com/sealvanas/yy-wskqpexs/commit/c0a0308756aa8fda43cbb5461cd9640afb2862a3?0dpn=8F1
+。
+安庆市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日最新更新），点击查询：https://github.com/nyblaso/wf-rhzn/commit/ecd1777d8d42d3dbec451c0b405fd3906b074fd3?ukx4=HFEF
+。
+鞍山市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日公布升级），点击查询：https://github.com/nyblaso/wf-rhzn/commit/0a5414b9f2fa006f15cdfd88fd3ac2df1aea8e7a?42ey=ON7Y
+。
+安阳市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日最新更新），点击查询：https://github.com/nyblaso/wf-rhzn/commit/26ad4b952525b9f5f2065d8cefd4fa7174452cfb?ownm=XVO
+。
+巴中市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日官网更新），点击查询：https://github.com/draftyreject/trnfvn-amlzqg/commit/6b7c28037da3e67c5aaee2fb3012f24f8ecd77bf?vypk=INXO
+。
+百色市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日全新升级），点击查询：https://github.com/draftyreject/trnfvn-amlzqg/commit/c7b922667a9113681a68e5013a122bd12b202ce1?96p=Y402
+。
+蚌埠市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日官网公布），点击查询：https://github.com/draftyreject/trnfvn-amlzqg/commit/68dbce283d0faa7014e4af3545f440c07a7b2ffa?nd4=YAVW
+。
+保定市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日统一上线），点击查询：https://github.com/draftyreject/trnfvn-amlzqg/commit/82683aae8a68ddf3675e2cb6f608501a6c016fe9?xma2=FYW
+。
+宝鸡市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日官网更新），点击查询：https://github.com/draftyreject/trnfvn-amlzqg/commit/75fb09b5ce10ca00ce7d23091e49f7d5deb5614e?fu0a=X5J
+。
+保山市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日更新升级），点击查询：https://github.com/draftyreject/trnfvn-amlzqg/commit/6180f39de978809cf365381640cbec53999da134?2ehc=W61
+。
+包头市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日全新上线），点击查询：https://github.com/draftyreject/trnfvn-amlzqg/commit/3106e38655059ef0ea3ee52f2d2431cb99bbddbe?4nmh=CGA
+。
+北海市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日统一上线），点击查询：https://github.com/draftyreject/trnfvn-amlzqg/commit/bac18d64f632770734fa4b1cfc65a258d68ace55?43on=RWPY
+。
+本溪市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日正式发布），点击查询：https://github.com/draftyreject/trnfvn-amlzqg/commit/d56a3b67e80742cd4f7422b992d828ee9bf14083?83bs=7NL
+。
+滨州市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日最新更新），点击查询：https://github.com/draftyreject/trnfvn-amlzqg/commit/f2ae007de0cb1db4d14ccdf6623b7611f2efec29?x1g7=6BI7
+。
+博罗市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日统一升级），点击查询：https://github.com/draftyreject/trnfvn-amlzqg/commit/3f519e70be56ea6566cb6b4840ce41c210432a87?lefr=579
+。
+沧州市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日最新推出），点击查询：https://github.com/draftyreject/trnfvn-amlzqg/commit/eb4dcb5181227a1907bee16dc86834ff9bff1341?n9n0=HAM
+。
+长春市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日更新升级），点击查询：https://github.com/draftyreject/trnfvn-amlzqg/commit/c82b63786d7ab68757e7bf747e2e85d91f2962ee?nhz=8YJW
+。
+常德市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日官网升级），点击查询：https://github.com/draftyreject/trnfvn-amlzqg/commit/f2b143739b45b3df216c31bfa54b91bb8faa8d66?z6j=0TH
+。
+长葛市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日全新升级），点击查询：https://github.com/draftyreject/trnfvn-amlzqg/commit/11de965fc4430d3390cbcd7dd7d2c8a4d4c6f4c5?9ze=YOM
+。
+长沙市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日公布升级），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/dcbf029cd69b52b25f2e4a7e48c1adc6f647b1d2
+。
+常熟市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日正式推出），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/15f4d104c5a8993e223930926a89d69a101ec793
+。
+长兴市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日公布升级），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/cc4f63a9b9567bba29eacf2846dbd4872de7df09
+。
+长治市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日公布上线），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/7d34ea451e9b8d90c6d4fedc4c89854499e0e2ae
+。
+常州市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日官网上线），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/51c83bda281e05f5625a1934e1de1d542d781c4e
+。
+巢湖市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日统一升级），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/d21bb9153e0e9f06f2d511f9187d6a86a2836e42
+。
+朝阳市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日统一上线），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/7138341f4cd7e73fbd1e30de651cd949bc2036b5
+。
+潮州市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日统一升级），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/6a3241be6851998506c4a1a5f19e76b5852e8054
+。
+郴州市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日官网升级），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/ea7dc07aa95c311702b198993fc2a81482d53e94
+。
+承德市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日全新升级），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/46d1cc5bd57ff3792aeddb1d784d4bae1b7f2a81
+。
+成都市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日统一上线），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/a52602052e444c3c879478e3e6a60eb8444e3a6e
+。
+池州市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日全新公布），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/9ed765d094eb23b8c1c7403717fc07e3314f7287
+。
+崇左市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日最新推出），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/d6d1ab884344409144b466f45ccafb2bb5859f5a
+。
+滁州市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日官网上线），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/3590e354d0a86dd2de92c726b5520f545b4ceb14
+。
+慈溪市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日正式推出），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/52d16eb1545ac56cc151e2e7d3d2268d30830692
+。
+大丰市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日官网升级），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/3ca322b7931dbe4ef3805c5ee14a4b52341739d8
+。
+大理市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日全新升级），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/ddb02d87ae62f04035bb69479baa54ff402c14e9
+。
+大连市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日全新升级），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/39780863179d5a3cbae43b926351bdd32bfd6718
+。
+大庆市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日正式上线），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/e6f6fa9150caa0791ccc6e3c8213129d3d0541b4
+。
+大同市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日最新更新），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/1e4f546ad86d57a16c9f6d70636103eb268fe7a0
+。
+达州市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日最新更新），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/7fec6d874d24bb53531e19de3bff7350f431bdf8
+。
+丹东市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日全新上线），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/2d6508bbcff064ee57942acf5b51a12eeaa44482
+。
+德清市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日正式更新），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/b01abb7bd8f477b09112d5363704e93ece0664aa
+。
+德阳市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日全新公布），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/7ee79a70338a0bf48e715d6bd539969231b8623d
+。
+德州市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日官网升级），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/a041c58374e7f6179c971a65574f10aae49d659f
+。
+定州市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日统一上线），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/169aed649b23a3409a335ca0d7b333671bc1085c
+。
+东海市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日正式更新），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/c80a48e56f895277efb81ce7724111673c89643e
+。
+东台市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日官网升级），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/132a72a330509ebaad106d8b27028abf310c17b0
+。
+东营市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日最新更新），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/693d7906602b7453cfb2ebdf25ae9a5b8778df23
+。
+东莞市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日官网更新），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/f9d729a8af75a403d9a113a1871e2cf61efa988c
+。
+鄂尔市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日全新上线），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/3131126e110c245c8c255a325d63a749c45e0551
+。
+鄂州市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日公布上线），点击查询：https://github.com/piercingcotto/riycg-sflzodks/commit/78267ed2a28e873659369a1e680c7958fb25d369
+。
+恩施市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日官网更新），点击查询：https://github.com/tforan-antoniow/trnfvn-sxymuv/commit/45ad51a4f1dc6e2ecb05bc9f37781a92af7553a7?ra09=TD5
+。
+防城港市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日统一上线），点击查询：https://github.com/tforan-antoniow/trnfvn-sxymuv/commit/b72404d966a2b4ca3a3180b5c47c321b771067a4?xzz0=C6GZ
+。
+佛山市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日官网上线），点击查询：https://github.com/tforan-antoniow/trnfvn-sxymuv/commit/9fc965cc7ba3e2793c9b08c187cecfd5cbf645db?mrk=G4BT
+。
+抚顺市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日官网上线），点击查询：https://github.com/tforan-antoniow/trnfvn-zpdrlh/commit/c4f489185a8aba0eaf92991a568c89547f9eaba4?2hp=ONUR
+。
+阜新市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日官网发布），点击查询：https://github.com/tforan-antoniow/trnfvn-khchep/commit/fa5cc144f68cf1c97f477ddbf98ab10d494d08d6?dncp=MMVF
+。
+阜阳市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日全新上线），点击查询：https://github.com/tforan-antoniow/trnfvn-jeqlfh/commit/6d3b42c6f03a947c3db634fcabd29ff3897c651b?2cdd=WH6W
+。
+抚州市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日官网公布），点击查询：https://github.com/tforan-antoniow/trnfvn-zfvejx/commit/fad9ea9a8cd59bd6f465d308bda4b21f358156dd?s4kp=KQXM
+。
+福州市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日统一发布），点击查询：https://github.com/draftyreject/trnfvn-sklxdr/commit/34f29ba5aabc8cdd7afd9b27d07d4e5df1e33b75?cos=41W
+。
+赣州市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日统一上线），点击查询：https://github.com/draftyreject/trnfvn-sklxdr/commit/b449054b487e5c22ba70b931df8a1d6d898ba4bf?jxly=QEM
+。
+馆陶市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日官网公布），点击查询：https://github.com/draftyreject/trnfvn-sklxdr/commit/82b397a5a2a76f3f133651fe39118e92e0d4b831?0x0v=2HD
+。
+广安市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日正式推出），点击查询：https://github.com/draftyreject/trnfvn-sklxdr/commit/e7e2ca4837a782e9fbfd8d91e441e24efde99b34?wi5h=H1MS
+。
+广元市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日更新升级），点击查询：https://github.com/draftyreject/trnfvn-sklxdr/commit/1fc6c549d0b3a1db147dc6d0e770519ef5ee84c2?1euf=SHNV
+。
+广州市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日公布上线），点击查询：https://github.com/draftyreject/trnfvn-sklxdr/commit/6dd15a678c2866d3bcc87529f18b50287df2e5a7?3070=95C
+。
+贵港市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日官网升级），点击查询：https://github.com/draftyreject/trnfvn-sklxdr/commit/a91dd4059f02c78732342f77eb000c487c7fd43b?gumz=Q2GN
+。
+桂林市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日正式上线），点击查询：https://github.com/draftyreject/trnfvn-sklxdr/commit/1fd1b1427c63b0d2f4878c34da696a28483bae2f?nqsg=2QB3
+。
+贵阳市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日全新升级），点击查询：https://github.com/grandgraduat/trnfvn-jnueak/commit/bc88fc2c608822e6ea0c2fcb58bdfac8d500cd22?fxfm=AG4
+。
+哈尔滨市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日更新升级），点击查询：https://github.com/grandgraduat/trnfvn-jnueak/commit/9eb645394068061f15548a5301556b79ee8db647?latl=SF4A
+。
+海安市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日全新上线），点击查询：https://github.com/grandgraduat/trnfvn-jnueak/commit/09300304b87bfe9e4097d7405bb8be3a8fdf1a61?6lv=EO1
+。
+海口市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日官网公布），点击查询：https://github.com/grandgraduat/trnfvn-jnueak/commit/d5ef6db1cefe4a1e23f19f3947ddff7a93e8fa5f?jtxk=W6L
+。
+海门市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日官网公布），点击查询：https://github.com/grandgraduat/trnfvn-jnueak/commit/a86f2b3bd8d1a9d6d3eb47fb1cd93783cac02cb3?la36=U53J
+。
+海宁市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日官网发布），点击查询：https://github.com/grandgraduat/trnfvn-jnueak/commit/8d3c93c269ce79edc9986fd47f5433e0bcac0a30?mp1u=415Q
+。
+邯郸市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日正式上线），点击查询：https://github.com/grandgraduat/trnfvn-emwfkz/commit/39fddf656e28c5e051c378544f23e26dfa4088bb?1vz=958I
+。
+汉中市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日正式更新），点击查询：https://github.com/grandgraduat/trnfvn-emwfkz/commit/11d734348e271a4e7b0dfe60bb82c086ecbc6be6?i00l=CQRG
+。
+杭州市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日公布升级），点击查询：https://github.com/grandgraduat/trnfvn-emwfkz/commit/c50b345f0b4ac06c54b32154d9cf756f99cd8d67?49dd=KKFG
+。
+鹤壁市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日统一更新），点击查询：https://github.com/grandgraduat/trnfvn-emwfkz/commit/650e2674671fb82c8fed1223c6e67724f0eefd8b?j9n=JJH1
+。
+河池市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日官网更新），点击查询：https://github.com/grandgraduat/trnfvn-emwfkz/commit/d33ec42127a9dd16b52142b154d2ca1f872177cb?6atd=G9H
+。
+合肥市(shimaisi)(史麦斯)燃气锅炉售后服务电话：400 -788 -9377（2026年09月25日公布上线），点击查询：https://github.com/grandgraduat/trnfvn-emwfkz/commit/914abd026e05a7434deed348d46bbd6a3678985c?xt1=I9T
+2026年09月25日20时24分24秒(UTC+8)
+addsfsdfaf9.25-81
